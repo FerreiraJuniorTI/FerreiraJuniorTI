@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @FerreiraJuniorTI
-- 👀 I’m interested in aprender
+- 👀 I’m interested in aprender sobre programação
 - 🌱 I’m currently learning gestão da TI
 - 💞️ I’m looking to collaborate on tudo que for possivel
 - 📫 How to reach me ferreirajunior.ti@gmail.com
